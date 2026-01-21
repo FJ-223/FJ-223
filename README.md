@@ -1,3 +1,5 @@
+![](https://github.com/FJ-223/Elective-Laboratories/blob/main/Laboratory%202/16-608_Lab2%20Profile%20Banner_Revadona.png)
+
 # 💫 About Me:
 🧑🏽‍🔬I am a 3rd Year BS Chemistry major of the Ateneo de Davao University. <br>🧪As a chemistry major, I am fascinated by Organic Chemistry and Inorganic Chemistry.<br>🥼For my undergraduate thesis, I am highly interested in formulating Bio-based flame retardants.<br>
 
